@@ -1,2 +1,2 @@
 # experiential-scale
-A tribute to Toby Seagaran. May his memory be a blessing.
+A tribute to Toby Segaran. May his memory be a blessing.
