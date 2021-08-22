@@ -1,2 +1,2 @@
 # experiential-greatness
-A memorial to Toby Seagaran.
+A tribute to Toby Seagaran. May his memory be a blessing.
